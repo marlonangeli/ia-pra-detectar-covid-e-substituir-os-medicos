@@ -1,0 +1,1 @@
+# ia-pra-detectar-covid-e-substituir-os-medicos
